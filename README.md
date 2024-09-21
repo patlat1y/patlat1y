@@ -5,5 +5,5 @@
 - 🤔 I’m looking for help with project
 - 💬 Ask me about my work
 - 📫 How to reach me: telegram @shoqie
-- 😄 Pronouns: Alexandrovich
+- 😄 Pronouns: He
 - ⚡ Fun fact: "Between heaven and earth, only I am worthy"
